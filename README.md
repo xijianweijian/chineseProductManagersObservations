@@ -7,7 +7,7 @@
 这是一个私人项目，意味着我不会对项目中任何的结论负责任，但是我会尽可能追去项目的准确性，如果有人直接借鉴其中结论但是获得了极差的结果，请自行负责。</br>
 
 
-This is a personal observation record that records my personal experience,what I see  what I konw and conversation talk with the excellent product manager in china.</br>
+This is a personal observation record my personal experience,what I see  what I konw and conversation talk with the excellent product manager in china.</br>
 If it goes well,I will update more skills and konwleadge about product manager,  I think these contents is very practical for 1-3 years product manager,it can also make sure that I will continue reivew my what I do and my awareness for this job.</br>
 I hope to improve my English, so I will use bilingual writing as much as possible, there is no other purpose (such as pretend to be something), Thank you for tolerance.Also,I hope my project can be a window for foreign people of the same job to understand chinese internet. </br>
 In my opinion,users from differeent countries may have different habits,but the core of prodcut manager's job is to find a way make sure that his production is useful for customers. There is so many variables in our jobs,when a company get huge success,it is difficult to find out the real reason what make it different.So,to touch more cases is very beneficial for our job,especially in different cultural background.If we can find general characteristics between excellent projects from the whole world,we can get a high level for this job.</br>
